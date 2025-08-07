@@ -6,3 +6,9 @@ Here are some interesting facts about me:
 
 
 
+I was born in Virginia Beach, VA
+
+
+
+I am near fluent in Japanese
+
